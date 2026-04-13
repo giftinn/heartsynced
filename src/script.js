@@ -109,16 +109,15 @@ html:`
 
 <span class="signal">TRANSMISSION START</span><br><br>
 
-TRANSMISSION START
+hi lovania shanaya… happy second mensive, babe.
 
-Sometimes I wonder if you notice how softly you exist inside my universe. Sometimes I wonder if you notice how softly you exist inside my universe.
-Sometimes I wonder if you notice how softly you exist inside my universe.
+it still feels kinda unreal to me how fast time flies when it’s with you. two months might sound short to some people, but with you… it feels like something deeper, something real. thank you for stayin, for always bein patient with me, and for lovin me even when i don’t always show it the best way. i know i can be hard to understand sometimes, and i’m sorry for the moments i made you overthink or doubt things. just know i never mean to hurt you.
 
-Sometimes I wonder if you notice how softly you exist inside my universe. Not loud. Not chaotic.
+honestly, i’m really grateful for you. you came into my life and changed the way i see things made everything feel softer, calmer, and more meaningful. you got this way of makin me feel like i don’t have to pretend, like i can just be me. and that’s rare. that’s why i feel so lucky… lucky to have you, to know you, to call you mine in this lifetime.
 
-But like late night radio waves that stay playing even when the world sleeps.
+i might not always say it perfectly, but lemme say this you mean a lot to me. more than my words can explain, more than i show sometimes. i hope we keep growin together, makin memories, and stayin like this… us. happy second mensive again, babe. i got you, always
 
-END SIGNAL
+
 <span class="signal">END SIGNAL</span>
 
 </div>
